@@ -1,0 +1,2 @@
+Õppimiseks
+Ei midagi muud
